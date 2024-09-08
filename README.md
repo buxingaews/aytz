@@ -1,11 +1,30 @@
 # 久久66热人妻什偷产精品色老易免费播放视频地址
 关于久久66热人妻什偷产精品色老易免费播放视频地址多小掰
 
-👉/观/看/入/口👉http://www.baidu.com/link?url=aFQjCpKLyjmMkJDTPPmIM46mcs0b-moe8w2Xe6-iLGqpxJgfWTUHTnAr0yehHs6i&wd
+👉👉最新入口👈👉👉http://www.baidu.com/link?url=XaDzi4lrlBsIf7hc43pQAeEvE68KnODCy8r9yapmf0G&wd
 
 久久66热人妻什偷产精品色老易免费播放视频地址/>　　我在黑暗中叫自己，要把自己叫醒。如今已经没有人叫我了。他们叫我的名字。叫的是他们的幻觉，他们可以碰触的肉体。那不是我。我无形无状，藏在你们看不见的地方。我一点一点把自己叫醒。　　如何从众人中认出我来，不是因为差异与不同，而是因为相同，五百罗汉中，只有一个人，是和你相同的。我的心疼得紧，又无计可施。我的空间被压缩到很小，没有想念的余地，只有一个人，突兀地站在土地上，人所爱的，所喜的，所用的，我把它拿来拿去。我把它交给另一个人。这是你的女人。我对他说。　　他就成了我的男人。人说，你们有夫妻相。好，那就是夫妻。就这么是夫妻了。这样的一生，简洁，平静。我问，爱不爱我。他说，爱。我问，想不想娶我。他说，想。我们在一起吃饭、，我们手挽手去买床单，洁白的床单。我们打着暗语。　　那曾经的伤口，我曾试图把它添满，结果越弄越痛。伤口越来越大。后来我就无视它。它的上面长出了沙子。后来沙子向上蔓延，把一切柔软的地方都覆盖了。从此路就平坦了。我们彼此毫无伤口，毫无疼痛。　　沙子啊。　　我的头脑快被沙化了。没有水。一点水也没有。只有沙子，平坦的，洁白的沙子。沙子美丽。只是没有水。没有雨水一样的诗。　　后来我长久地沉睡。温暖的雪地，麦草，小羊小马，小孩子。路是干净的，有着古旧的黄，路坚硬。这是我想像中的成都，梦里的成都，梦里缩小了的北方。我一个人去了那个地方。左手巫山，右手巫山。而你在北方。你的老师，在我身旁。他带来你的消息。他知道，我可以为你做一切事情。他笑我，眉眼里都是笑意。　　醒了我就把梦忘在脑后，我和我的男人吃饭、逛街，我像顽皮的小孩儿，跟在他后面走，踩他的脚跟，他转过身来，倒着走，一边走，一边对着我笑，我就怎么也踩不到他了。我们去买安全套，他在店员面前和我调笑，我都不好意思了。他真有意思，买安全套还要支持地方产业。买青岛产的。他的大学四年，在青岛度过。附近是一家橡胶厂，生产杰士邦。药店里的杰士邦却是武汉生产的。他买杜蕾斯。这是他的城，我的城，我们的常识，品牌和效用。　　我记得你不晓得杜蕾斯。你真笨，我反而有成就感。我那时就是那样喜欢你的。你把爱情藏起来，藏在卧室里，你不会拿出来调笑。我恨你，恨你从不肯把我拿在阳光下。现在我不恨你了。现在我们相对于彼此，是黑暗中的苔藓。　　我的男人，有些自恋。穿火红的外套，戴深蓝的墨镜。摘下他的眼镜，他还是个小孩子，或者，总是长得像小孩子。我的女友都向着他，不许我朝三暮四，不许我欺负他。
 　　3月26日，在德国伊瑟隆，医务职员在一处新冠宏病毒检验和测定站取样。德国疾控组织罗伯特·科赫接洽所26日颁布最新数据表露，截止本地功夫当天0时，德国新冠肺炎累计确诊病例增至36508例，较前一天新增4954例，牺牲病例增至198例。
 鱼蛙仙湖游，畜禽幻想钻。
+https://github.com/slybg/zenm/issues/1
+https://github.com/latvg/pdju/blob/main/README.md
+https://github.com/latvg/pdju
+https://github.com/latvg/pdju/issues/1
+https://github.com/latvg/biek/blob/main/README.md
+https://github.com/latvg/biek
+https://github.com/latvg/biek/issues/1
+https://github.com/latvg/zuoc/blob/main/README.md
+https://github.com/latvg/zuoc
+https://github.com/latvg/zuoc/issues/1
+https://github.com/latvg/wans/blob/main/README.md
+https://github.com/latvg/wans
+https://github.com/latvg/wans/issues/1
+https://github.com/latvg/woli/blob/main/README.md
+https://github.com/latvg/woli
+https://github.com/latvg/woli/issues/1
+https://github.com/latvg/kesu/blob/main/README.md
+https://github.com/latvg/kesu
+
 　　生命的舞蹈，舞蹈的生命，在蓝天白云下翻飞着的，是金色的生命。-
 　　【德国】罗莎·卢森堡32、【句子大全】培养随人命发端，在咱们发觉天性已创造之前，厥后的熏陶已很难将它挪动及变换。
 
